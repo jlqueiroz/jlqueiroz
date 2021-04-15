@@ -1,5 +1,5 @@
 - 👋 Oi, Eu sou Janderson Queiroz
-- 👀 Estou interessado em espandir meus conhecimentos
+- 👀 Estou interessado em expandir meus conhecimentos
 - 🌱 Atualmente estou aprendedo programação em varias linguagens
 - 💞️ Procuro colaborar em projetos do meu trabalho atual
 - 📫 Meu contato é : jandersonqueiroz@gmail.com
